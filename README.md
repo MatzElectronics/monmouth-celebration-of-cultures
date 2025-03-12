@@ -1,1 +1,0 @@
-# monmouth-celebration-of-cultures
